@@ -41,3 +41,4 @@ We may update this Privacy Policy to reflect changes to our data practices or fo
 8. Contact Us
 
 If you have any questions, concerns, or requests regarding this Privacy Policy or your personal information, please contact us at generation.down.low@gmail.com.
+ 
